@@ -18,6 +18,6 @@
 <br />
 <p align="center">
   <samp>
-    $  <a href="https://t.me/Axel760" target="_blank">telegram</a> $
+   $ <a href="linkedin.com/in/georgy-kolokutin-0300151a5" target="_blank">linkedIn</a> . <a href="https://t.me/Axel760" target="_blank">telegram</a> $
   </samp>
 </p>
